@@ -1,32 +1,34 @@
 Vilnius, Šnipiškės, Šeimyniškių St.
 
-A spacious 2-room, 76.38 sq. m. apartment for rent with a view of Gediminas' Castle. Economical gas heating, only 20-25 EUR/month. Built in 2002, 2 built-in closets, a balcony, and two separate workspaces in the apartment.
+A spacious 2-room, 76.38 sq. m. apartment for rent with a view of Gediminas' Castle. 2 built-in closets, a balcony, and two separate workspaces in the apartment.
 A perfect apartment for a couple or a family with children. There is a spacious garage and one additional parking space behind a barrier. The address is Šeimyniškių St. 21D.
 
-Area – 76.38 sq.m;
-5th floor of 6 - there is an elevator;
-Built in 2002:
-The apartment is rented with the home appliances and furniture you see in the photos;
-Spacious hallway with a large built-in closet, electric heated floors.
-Large master bedroom, which contains a large built-in closet and fits not only a parents' double bed but also a child's bed and a workspace; has "blackout" night curtains.
-Spacious living room, where the whole family can comfortably settle in. A plasma TV and a high-quality sound system are left in the apartment. There is a remote workspace in the living room.
-Kitchen in a niche, integrated appliances, built-in refrigerator, oven, electric stove, dishwasher.
-Gediminas' Castle is visible from the balcony and the kitchen window.
-The bathroom has a jacuzzi tub and a shower cabin that was replaced a year ago, high-quality plumbing, electric heated floors.
-There are a total of 2 built-in closets in the apartment.
-Windows – wooden with double-glazed units.
-Flooring – solid wood / pine.
+ * Area – 76.38 sq.m
+ * 5th floor of 6 - there is an elevator
+ * Built in 2002
 
-An economical gas boiler was replaced a year ago.
+The apartment is rented with the home appliances and furniture you see in the photos.\
+Spacious hallway with a large built-in closet, electric heated floors.\
+Large master bedroom, which contains a large built-in closet and fits not only a parents' double bed but also a child's bed and a workspace; has "blackout" night curtains.\
+Spacious living room, where the whole family can comfortably settle in. A plasma TV and a high-quality sound system are left in the apartment. There is a remote workspace in the living room.\
+Kitchen in a niche, integrated appliances, built-in refrigerator, oven, electric stove, dishwasher.\
+Gediminas' Castle is visible from the balcony and the kitchen window.\
+The bathroom has a jacuzzi tub and a shower cabin, electric heated floors.\
+There are a total of 2 built-in closets in the apartment.\
+Windows – wooden with double-glazed units.\
+Flooring – solid wood / pine.\
+An economical gas boiler is installed.
+
 Heating – gas. Costs, including hot water production:
-January 2025 – ~55 EUR.
-February 2025 – ~52 EUR.
-March 2025 – ~40 EUR.
-Homeowners' association fees ~ 40 EUR/month.
+ * January 2025: €55.
+ * February 2025:  €53.
+ * March 2025: €41R.
 
-Alarm system.
-Armored door.
+Homeowners' association fees ~ €40/month. Garbage disposal ~€80/year, 100Mbps internet €55/year.\
+Alarm system.\
+Armored door.\
 Tidy, locked staircase, there is an intercom.
+
 Extremely quiet location, only courtyards are visible from the windows, there is a small park next to the building.
 
 ![01-vilnius-snipiskes-seimyniskiu-g](https://github.com/user-attachments/assets/daced700-833d-4668-a8c1-b8f14e373499)
