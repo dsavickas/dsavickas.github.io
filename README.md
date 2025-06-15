@@ -3,8 +3,8 @@ Vilnius, Šnipiškės, Šeimyniškių St.
 A spacious 2-room, 76.38 sq. m. apartment for rent with a view of Gediminas' Castle. 2 built-in closets, a balcony, and two separate workspaces in the apartment.
 A perfect apartment for a couple or a family with children. There is a spacious garage and one additional parking space behind a barrier. The address is Šeimyniškių St. 21D.
 
- * Area – 76.38 sq.m
- * 5th floor of 6 - there is an elevator
+ * Area: 76.38 sq.m
+ * 5th floor of 6 – there is an elevator
  * Built in 2002
 
 The apartment is rented with the home appliances and furniture you see in the photos.\
@@ -20,11 +20,11 @@ Flooring – solid wood / pine.\
 An economical gas boiler is installed.
 
 Heating – gas. Costs, including hot water production:
- * January 2025: €55.
- * February 2025:  €53.
- * March 2025: €41R.
+ * January 2025: €55 (Total utility cost €256)
+ * February 2025: €53 (Total utility cost €199)
+ * March 2025: €41 (Total utility cost €163)
 
-Homeowners' association fees ~ €40/month. Garbage disposal ~€80/year, 100Mbps internet €55/year.\
+Homeowners' association fees ~ €40/month. Garbage disposal ~ €80/year, 100Mbps internet €55/year.\
 Alarm system.\
 Armored door.\
 Tidy, locked staircase, there is an intercom.
